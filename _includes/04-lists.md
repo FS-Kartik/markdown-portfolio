@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. clap - 👏
+2. heart - ❤️
+3. smiley - :smiley:
